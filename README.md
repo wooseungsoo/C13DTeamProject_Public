@@ -9,6 +9,7 @@ https://github.com/user-attachments/assets/869f0aa7-354a-4b01-9d91-a2bf0c232846
 
 
 https://github.com/user-attachments/assets/580f9096-5d0a-45c4-a3d2-e3b12b48569a
+
 <<리드미 업로드용 영상에는 심약자를 위하여 사운드를 제거하였습니다>>
 
 📌 Role & Contribution
