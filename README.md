@@ -1,6 +1,5 @@
 
-https://github.com/user-attachments/assets/03f8bdd9-3502-4f21-8bd7-df290625366b
-<img width="1064" height="624" alt="image" src="https://github.com/user-attachments/assets/1755c37f-57b1-4c81-8f95-bf13d441211b" />
+
 <시작부분>
 
 https://github.com/user-attachments/assets/869f0aa7-354a-4b01-9d91-a2bf0c232846
