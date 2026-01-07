@@ -1,4 +1,15 @@
+
+https://github.com/user-attachments/assets/03f8bdd9-3502-4f21-8bd7-df290625366b
 <img width="1064" height="624" alt="image" src="https://github.com/user-attachments/assets/1755c37f-57b1-4c81-8f95-bf13d441211b" />
+<시작부분>
+
+https://github.com/user-attachments/assets/869f0aa7-354a-4b01-9d91-a2bf0c232846
+
+<추격부분>
+
+
+https://github.com/user-attachments/assets/580f9096-5d0a-45c4-a3d2-e3b12b48569a
+<<리드미 업로드용 영상에는 심약자를 위하여 사운드를 제거하였습니다>>
 
 📌 Role & Contribution
 
