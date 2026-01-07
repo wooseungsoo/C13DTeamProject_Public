@@ -1,3 +1,5 @@
+<img width="1064" height="624" alt="image" src="https://github.com/user-attachments/assets/1755c37f-57b1-4c81-8f95-bf13d441211b" />
+
 📌 Role & Contribution
 
 본 프로젝트에서 NPC(적) AI 행동 로직 구현을 담당했습니다.
